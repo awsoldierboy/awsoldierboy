@@ -84,7 +84,6 @@
 
 <div align="center">
  
-![Bild_2025-02-14_215243019-removebg-preview](https://github.com/user-attachments/assets/22481114-c012-49fd-8eef-fe5bc6ec0fe0)
 
 ![tumblr_01086da6c8512207736af3f64d6d151e_7b97c22c_2048](https://github.com/user-attachments/assets/ffb754d9-7f6a-4f83-8a17-13a99edd1d47)
 
