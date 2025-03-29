@@ -1,5 +1,10 @@
 <div align="center">
 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qry7bd9vfhlbcvzsii4t6oogf&cover_image=true&theme=natemoo-re&show_offline=false&background_color=bababa&interchange=false&bar_color=950e0e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
 ![image](https://github.com/user-attachments/assets/8a34be75-42eb-45c9-94a9-500dd21f2e42)
 
  # 𝙖𝙗𝙤𝙪𝙩 𝙢𝙚 .ᐟ
