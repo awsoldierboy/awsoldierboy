@@ -1,7 +1,5 @@
 <div align="center">
 
-![image](https://i.pinimg.com/originals/bb/49/58/bb49586f5249b692dd0369b0b5d3a7b8.gif)
-
 ![image](https://github.com/user-attachments/assets/8a34be75-42eb-45c9-94a9-500dd21f2e42)
 
  # 𝙖𝙗𝙤𝙪𝙩 𝙢𝙚 .ᐟ
