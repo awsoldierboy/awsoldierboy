@@ -1,7 +1,6 @@
 <div align="center">
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qry7bd9vfhlbcvzsii4t6oogf&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&bar_color=ce0d0d&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=qry7bd9vfhlbcvzsii4t6oogf&redirect=true)
+![image](https://i.pinimg.com/originals/bb/49/58/bb49586f5249b692dd0369b0b5d3a7b8.gif)
 
 ![image](https://github.com/user-attachments/assets/8a34be75-42eb-45c9-94a9-500dd21f2e42)
 
@@ -104,7 +103,8 @@
  
 ![image](https://github.com/user-attachments/assets/8a34be75-42eb-45c9-94a9-500dd21f2e42)
 
-<img src="https://i.pinimg.com/originals/7d/d9/f8/7dd9f80e2d6a0a898388985b3ab0e5ab.gif"/>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qry7bd9vfhlbcvzsii4t6oogf&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&bar_color=ce0d0d&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=qry7bd9vfhlbcvzsii4t6oogf&redirect=true)
 
 [𝘥𝘪𝘷𝘪𝘥𝘦𝘳𝘴 𝘤𝘳𝘦𝘥𝘪𝘵](https://www.tumblr.com/dollywons/754733400403984384/%F0%9D%93%87%E2%84%AF%F0%9D%92%B9-%F0%9D%92%82%F0%9D%92%8F%F0%9D%92%85-%F0%9D%91%94%E2%84%B4%F0%9D%93%81%F0%9D%92%B9-%F0%9D%92%B9%F0%9D%92%BE%F0%9D%93%8B%F0%9D%92%BE%F0%9D%92%B9%E2%84%AF%F0%9D%93%87%F0%9D%93%88-%F0%9D%92%B7%F0%9D%93%8E-%F0%9D%90%9D%F0%9D%90%A8%F0%9D%90%A5%F0%9D%90%A5%F0%9D%90%B2%F0%9D%90%B0%F0%9D%90%A8%F0%9D%90%A7%F0%9D%90%AC-%E0%AD%A8-%E0%AD%A7?source=share)
 
